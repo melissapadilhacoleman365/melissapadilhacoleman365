@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @melissapadilhacoleman365
-- 👀 I’m studying IT Management in FOM Berlin
+- 👀 I’m studying IT Management at FOM Berlin
 - 🌱 I’m currently in the IBM MVP DACH Team 
 - 📫 How to reach me via DM 
 
